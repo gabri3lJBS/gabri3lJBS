@@ -21,3 +21,7 @@ Sobre mim
 
 ![informatica](https://github.com/user-attachments/assets/2676dc4c-5dd9-4db1-9668-7730bff0cbca)
 
+
+![Bowser_Fart_but_in_lower_quality](https://github.com/user-attachments/assets/e119688c-97ba-49fa-a107-9510f634c324)
+
+
